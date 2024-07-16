@@ -1,5 +1,5 @@
 # Haiiii :3
-I'm just a silly girl (?) making stuff on her puter :3
+:3c
 
 
 ## Some stats 
